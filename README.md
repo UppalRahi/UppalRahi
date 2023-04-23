@@ -1,5 +1,10 @@
 # 💫 About Me:
-🔧 Building Traway<br>👨‍💻 All of my projects are available at https://rb.gy/yxuuga<br>⚡ Fun fact you think I am rude.
+🔧 Building Traway<br>
+                      
+                      
+                      
+                      
+                      <br>⚡ Fun fact you think I am rude.
 
 
 ## 🌐 Socials:
