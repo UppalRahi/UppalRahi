@@ -1,10 +1,5 @@
 # 💫 About Me:
-🔧 Building Traway<br>
-                      
-                      
-                      
-                      
-                      <br>⚡ Fun fact you think I am rude.
+🔧 Building Traway<br>⚡ Fun fact you think I am rude.
 
 
 ## 🌐 Socials:
